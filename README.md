@@ -1,2 +1,1 @@
-
-pathan lover
+adnan
